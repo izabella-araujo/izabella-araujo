@@ -1,7 +1,5 @@
 🤙OLÁ!!Me chamo Izabella...
 
--👾 Hoje trabalho com suporte ao usuário.
-
 -🤖 Curso Engenharia da Computação.
 
 
