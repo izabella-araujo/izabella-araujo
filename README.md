@@ -1,6 +1,6 @@
 🤙Hello, Word!!!
 
--🤖 Curso Engenharia da Computação.
+🤖 Curso Engenharia da Computação.
 
 
 <div align="center">
