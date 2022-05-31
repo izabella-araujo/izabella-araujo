@@ -1,4 +1,4 @@
-🤙OLÁ!!Me chamo Izabella...
+🤙Hello, Word!!!
 
 -🤖 Curso Engenharia da Computação.
 
